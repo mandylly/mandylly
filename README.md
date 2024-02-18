@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there,I Am Mandy! Welcome to my Github👋
 
 - 🔭 I’m a Candidate of MSBA 24'@UMN CSOM, and I am a passionate Data Expert with 2 years+ experiennce of Data Analytics.
 - 🌱 I’m actively seeking Data Scientist/Data Analyst/Business Analyst full-time roles in the US!
